@@ -8,7 +8,7 @@
 ## Kesan Pesan INTRIVIA Sejauh Ini 
 Sejauh ini, INTRIVIA menurut saya sudah cukup baik. Saya mendapatkan ilmu yang pas mengenai seluk beluk departemen, prodi, dan lingkungan kuliah. 
 
-## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
+## Kesan Pesan Cluster 13 Sejauh Ini 
 Cluster 13 menurut saya merupakan cluster yang kompak, seru, dan baik. Anggotanya sangat ramah dan bisa diajak kerja sama.
 
 ## Harapan Kuliah 
